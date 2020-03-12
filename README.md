@@ -1,1 +1,1 @@
-# mythical.github.io
+# mythicalcow.github.io
